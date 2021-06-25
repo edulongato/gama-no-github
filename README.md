@@ -1,0 +1,1 @@
+Curso está endo interessante até o momento e com muitos desafios!
